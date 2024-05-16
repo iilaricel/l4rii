@@ -12,4 +12,4 @@ larissabeatriz1903@gicloud.com
 
 @l4rii_olivr
 
-![https://tenor.com/pt-BR/view/boa-noite-tim%C3%A3o-gif-26501154](link GIF do Tenor)
+![descrição do GIF](https://tenor.com/pt-BR/view/boa-noite-tim%C3%A3o-gif-26501154)
