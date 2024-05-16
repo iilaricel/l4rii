@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil :blue_heart
 
-Meu nome é Larissa Beatriz
+Meu nome é Larissa
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
@@ -8,8 +8,8 @@ Meu nome é Larissa Beatriz
 
 ### Você pode entrar em contato comigo :mailbox
 
-larissabeatriz1903@gicloud.com
+larissabeatriz1903@icloud.com
 
-@l4rii_olivr
+@l4rii_oliv
 
-![descrição do GIF](https://tenor.com/pt-BR/view/corinthians-rodrigo-garro-gif-3467882418664779333)
+![descrição do GIF](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
