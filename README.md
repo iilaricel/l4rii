@@ -12,4 +12,4 @@ larissabeatriz1903@gicloud.com
 
 @l4rii_olivr
 
-![descrição do GIF](https://tenor.com/pt-BR/view/cristiano-ronaldo-gif-676719936412695333)
+![descrição do GIF](https://tenor.com/pt-BR/view/corinthians-rodrigo-garro-gif-3467882418664779333)
